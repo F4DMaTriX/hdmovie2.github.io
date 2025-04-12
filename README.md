@@ -37,13 +37,13 @@
 ---
 
 ## 🔍 Keywords for SEO (Naturally Included)  
-- `hdmovie2`  
+- `hdmovie2`
+- `hdmovie2 app`
 - `free hd movies app`  
 - `stream bollywood movies online`  
 - `watch hollywood movies free`  
 - `hdmovie2 apk download`  
-
-*(These keywords help Google rank your page.)*  
+  
 
 ---
 
